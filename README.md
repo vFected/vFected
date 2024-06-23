@@ -19,7 +19,7 @@
 
 <h1 align="center"></[](h)>
 
-[retrospring](https://pronouns.cc/@kureomi)
+[retrospring](https://retrospring.net/@Hellscent)
 
 [❁ rentry](https://rentry.co/lunnae)
 
